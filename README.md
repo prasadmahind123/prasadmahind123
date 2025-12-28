@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Prasad Mahind
-**🚀 Aspiring Software Engineer with strong fundamentals in DSA and Web Development **
+🚀 Aspiring Software Engineer with strong fundamentals in DSA and Web Development
 
 Email Me 👉 ✉️ **prasadmahind34@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
